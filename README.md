@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-**Moses-Mtonga/Moses-Mtonga**
+** Iam Moses-Mtonga**
 
 Here are some ideas to get you started:
 
